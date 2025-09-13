@@ -1,4 +1,4 @@
-# MornixMod
+# Mornix Mod
 ⚙️ | DeepSeek mod | ⚙️
 ▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀
 
