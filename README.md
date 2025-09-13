@@ -2,20 +2,18 @@
 ⚙️ | DeepSeek mod | ⚙️
 ▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀
 
-----> My TikTok 
+----> [My TikTok](https://www.tiktok.com/@mod_deepseek?_t=ZM-8zhN1Orvv3W&_r=1)
 
-@mod_deepseek
+----> [How to use](https://t.me/guidDeep)
 
-----> Video Installation Guide 
 
-@GuidDeep
 
 ----> Support Bot 
 
-@deepeerseeker_bot
 
-----> Our Website
 
-https://deepseekmod.github.io/home/
+----> [Our Website](https://deepseekmod.github.io/home/)
+
+
 
 ▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀
