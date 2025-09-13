@@ -17,3 +17,5 @@
 
 
 ▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀
+
+A mod for AI that allows you to ask any questions without restrictions (I am against everything illegal and everything that a user can ask an AI is not my problem, and it is his decision).
